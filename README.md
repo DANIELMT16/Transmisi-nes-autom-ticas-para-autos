@@ -1,2 +1,2 @@
-# Transmisi-nes-autom-ticas-para-autos
+# Transmisiones-automaticas-para-autos
 Vendemos transmisiónes automáticas para tu auto!!!! 
